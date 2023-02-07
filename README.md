@@ -1,4 +1,4 @@
-Hi, I am Juan Pablo ZH. Here in github@juanpablozunigahidalgo. 
+Hi, I am Juan Pablo Zuniga Hidalgo. Here in github my profile is: @juanpablozunigahidalgo. 
 
 I am a self learner programmer. Also. I had been working in data analytics. I hold a master in management and economics of innovation at Chalmers. I am also a civil mechanical engineer. During many years. I had been taking several courses in programming and digitalization. 
 Even do. I am an stoic human being. I dont think I am more or less than anybody else. I do the best I can do with the skills and abilities I have. To make this world a better place. 
