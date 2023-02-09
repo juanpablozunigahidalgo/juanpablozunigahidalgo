@@ -1,4 +1,5 @@
-Hi, I am Juan Pablo Zuniga Hidalgo. Here in github my profile is: @juanpablozunigahidalgo. 
+Hi, I am Juan Pablo Zuniga Hidalgo. 
+@juanpablozunigahidalgo. 
 
 Msc Management and Economics of Innovation at Chalmers. Civil mechanical engineer. Self learner programmer. I had been working in data analytics. For many years. I have been taking several courses in programming, digitalization and currently Artificial Intelligence.
 
