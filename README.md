@@ -6,6 +6,6 @@ I am a stoic human being. I don't think I am more or less than anybody else. I d
 
 In this profile. I store some open - source projects. Or some examples of my work. I can not show all since I am under intellectual and property right limitations. However, Here is a "mini grip" about some knowledge. 
 
-With a humble but can do attitude. I will never give up. 
+With a humble but can do attitude. I never give up. 
 
 How to reach me: juanpablo.zunigah@gmail.com
