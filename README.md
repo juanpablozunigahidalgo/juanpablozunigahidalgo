@@ -9,4 +9,5 @@ In this profile. I store some open - source projects. Or some examples of my wor
 How to reach me: juanpablo.zunigah@gmail.com
 
 You can also check my codesandbox here : https://codesandbox.io/u/juanpablo.zunigah
+
 You can also check my Gitlab here (bit pointless) : https://gitlab.com/juanpablozunigahidalgo
